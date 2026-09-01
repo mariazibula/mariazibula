@@ -106,7 +106,7 @@ I'm always interested in **research collaborations, biomedical AI projects, and 
 
 `AI` · `Biomedical Engineering` · `Medical Imaging` · `Neuroscience` · `Regenerative Medicine` · `Tissue Engineering`
 
-🔗 **LinkedIn:** (https://www.linkedin.com/in/maria-zibula)
+🔗 **LinkedIn:** (https://www.linkedin.com/in/maria-zibula-072b262b5/)
 
 ---
 
